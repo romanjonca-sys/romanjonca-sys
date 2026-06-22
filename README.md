@@ -22,4 +22,4 @@
 
 ### 📫 Kontakt
 
-[LinkedIn](https://www.linkedin.com/in/roman-jońca-6b08b7173/) · [moje-rodo.pl](https://moje-rodo.pl) · [dzwiekdobry.pl](https://dzwiekdobry.pl) · romanjonca@gmail.com
+[LinkedIn](https://www.linkedin.com/in/romanjońca/) · [moje-rodo.pl](https://moje-rodo.pl) · [dzwiekdobry.pl](https://dzwiekdobry.pl) · romanjonca@gmail.com
